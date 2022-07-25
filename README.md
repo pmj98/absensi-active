@@ -14,3 +14,4 @@ Penulisan
 - Yulian Deni Adhitama
 - Ricky Bayu Putra
 - Robi Kurniawan
+- Triyono
