@@ -2,4 +2,4 @@
 
 Penulisan
 
-- Nama Peserta
+- Tjokorda Gde Agung Friska Adnyana
