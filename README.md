@@ -16,4 +16,4 @@ Penulisan
 - Ricky Bayu Putra
 - Robi Kurniawan
 - Triyono
-
+- Tjokorda Gde Agung Friska Adnyana
