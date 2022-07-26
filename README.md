@@ -2,5 +2,18 @@
 
 Penulisan
 
-- Nama Peserta
+- Wandi Pratama
+- Usman
+- Rivaldi Rizalul Akhsan
+- Robertus Yudho Saktiantoro
+- Rifqi Fauzi Rahmat
+- wardi
+- Soyid Agi Prasetio
+- Rio Agus Permana
+- Roso Sasongko
+- Samuel Panjaitan
+- Yulian Deni Adhitama
+- Ricky Bayu Putra
+- Robi Kurniawan
+- Triyono
 - Tjokorda Gde Agung Friska Adnyana
