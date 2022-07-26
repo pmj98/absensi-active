@@ -19,3 +19,4 @@ Penulisan
 - Tjokorda Gde Agung Friska Adnyana
 - Saeful Rizal
 - Syamsul Arbi
+- Taofik Krisdiyanto
