@@ -17,3 +17,4 @@ Penulisan
 - Robi Kurniawan
 - Triyono
 - Tjokorda Gde Agung Friska Adnyana
+- Saeful Rizal
